@@ -1,5 +1,5 @@
 ---
-title: Ken ompi fuksi
+title: Fuksilaulu aka Ken ompi fuksi
 ---
 
 :,: Ken ompi fuksi n (jne...)
